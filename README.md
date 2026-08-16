@@ -1,2 +1,2 @@
 # Zeenpaperproducts
-Cash memo, bill books, Notebooks, writing pads, pocket diary, stationery products and custom printing services 
+Cash memo, Bill books, Notebooks, Writing pads, Pocket diaries, Stationery products and Custom printing services 
